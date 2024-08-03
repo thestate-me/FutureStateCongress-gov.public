@@ -1,4 +1,4 @@
-## <a href="[Congress](https://congress.futurestate.tv/)"><img src="https://pbs.twimg.com/profile_images/1806609056729022464/MOWKCk7c_400x400.jpg" alt="FUTURE STATE CONGRESS" width="65" /></a>FUTURE STATE CONGRESS.
+## <a href="[Congress](https://congress.futurestate.tv/)"><img src="https://pbs.twimg.com/profile_images/1806609056729022464/MOWKCk7c_400x400.jpg" alt="FUTURE STATE CONGRESS" width="65" /></a>  FUTURE STATE CONGRESS
 
 
 Reimagine. Innovate. Govern.
