@@ -1,7 +1,6 @@
-## <a href="[Congress](https://congress.futurestate.tv/)"><img src="https://pbs.twimg.com/profile_images/1806609056729022464/MOWKCk7c_400x400.jpg" alt="This is a Future State Congress  Gov4Git public identity repository." width="65" /></a> This is a Future State Congress Gov4Git public identity repository.
+## <a href="[Congress](https://congress.futurestate.tv/)"><img src="https://pbs.twimg.com/profile_images/1806609056729022464/MOWKCk7c_400x400.jpg" alt="FUTURE STATE CONGRESS" width="65" /></a>FUTURE STATE CONGRESS.
 
 
-FUTURE STATE CONGRESS
 Reimagine. Innovate. Govern.
 Content: Blend of Zuzalu + Network States + Political Science + Computer Engineering + Burning Man. Come taste the future
 
